@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Lucky8mate
-- 👀 I’m interested in books learning and epub
-- 🌱 I’m currently learning want to kean epub
-- 💞️ I’m looking to collaborate on not ready at mo
+- 👀 I’m interested in books, publishing, learning and epub
+- 🌱 I’m currently learning want to lean how to make epub work foe me
+- 💞️ I’m looking to collaborate on not ready at mo to collaborate 
 - 📫 How to reach me via email 
 - 😄 Pronouns: as long as not rude not fussed
 - ⚡ Fun fact: I live near a tumuli/barrow
