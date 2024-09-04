@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Lucky8mate
 - 👀 I’m interested in books, publishing, learning and epub
-- 🌱 I’m currently learning want to lean how to make epub work foe me
+- 🌱 I’m currently learning want to lean how to make epub work for me
 - 💞️ I’m looking to collaborate on not ready at mo to collaborate 
 - 📫 How to reach me via email 
 - 😄 Pronouns: as long as not rude not fussed
